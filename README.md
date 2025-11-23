@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gcwrights
-- 👀 I’m interested in basic Tutoring, writing and content creation 
-- 🌱 I’m currently learning Graphics designs 
+- 👀 I am a basic Tutor, writer and content creator
+- 🌱 I am into Graphics designs and  virtual assistant 
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me at email obunikemg@gmail.com
 - 😄 Pronouns: ...
